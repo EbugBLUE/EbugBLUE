@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EbugBLUE
-- 👀 I’m interested in Artificial Intelligence,medical equipments and game design
+- 👀 I’m interested in Artificial Intelligence,Medical equipments,Digital Finance,Risk Management and game design；Base Shang-hai
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ziyiguo1024@163.com
